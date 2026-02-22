@@ -1,2 +1,0 @@
-# clreventproject
-dz for itstep
